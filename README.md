@@ -1,0 +1,5 @@
+- # sobre mim
+-👋 Olá,meu nome é@kirahhh
+- 👍meu e-mail de contato é erika.silva.almeida@escola.pr.gov.br
+- 👀 eu estou interessada em focar no volei
+- 🌱 eu estou aprendendo o saque por cima no volei
